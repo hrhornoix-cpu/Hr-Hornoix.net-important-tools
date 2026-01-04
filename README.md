@@ -1,1 +1,1 @@
-# Hr-Hornoix.net-important-tools
+Every on e should be learn ai.# Hr-Hornoix.net-important-tools
